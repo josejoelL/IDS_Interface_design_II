@@ -1,1 +1,3 @@
-#no recuerdo si asi se ponia un readme
+# jorunery uno Smaply
+https://www.smaply.app/sharing/cmmtt6wx0000004l8nvkl6c15
+
